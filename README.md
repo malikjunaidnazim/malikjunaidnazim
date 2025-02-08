@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @malikjunaidnazim
 - 👀 I’m interested in forex trading
 - 🌱 I’m currently learning datastructure
-- 💞️ I’m looking to collaborate on top it companies
+- 💞️ I’m looking to collaborate on top IT companies
 - 📫 How to reach me via linkdin
 - 😄 Pronouns: Don't know
 - ⚡ Fun fact:born to conquer
